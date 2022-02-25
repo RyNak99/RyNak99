@@ -1,4 +1,4 @@
-### 学校用アカウント 👋
+### 学校用アカウント💫
 
 <!--
 **RyNak99/RyNak99** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
